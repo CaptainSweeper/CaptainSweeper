@@ -15,7 +15,7 @@ $${\color{white}Two \space \color{white}Lonely \space \color{white} People,  \sp
 
 --
 
-$${\color{white}Lovers \space \color{white}At \space \color{white} First  \space \color{white} \space \color{white}Sight, \space \color{orange}In \space \color{white}Love\color{white}Fover \color{white}"{}}$$
+$${\color{white}Lovers \space \color{white}At \space \color{white} First  \space \color{white} \space \color{white}Sight, \space \color{white}In \space \color{white}Love\color{white}Fover \color{white}"{}}$$
 
 
 
@@ -28,7 +28,7 @@ ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu
 
 ✦⋆𓆩✧𓆪⋆✦
 
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=Lost_Causes&color=orange&style=flat)
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=Bombs&color=green&style=flat)
 
 [𝘚𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://dolliestprince.straw.page/) 𝜗𝜚 [𝘈𝘛𝘈𝘉𝘖𝘖𝘒](https://dummysblood.atabook.org/) 
 
