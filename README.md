@@ -7,7 +7,7 @@
 
 $${\color{white}Strangers \space \color{white} In \space \color{white} The  \space \color{white}Night{}}$$
 
-![](https://github.com/CaptainSweeper/dummyinbed/blob/84267924dc1522ad0cc222964d5ec615fa0fc3e0/IMG_2550.jpg)
+![](https://github.com/CaptainSweeper/CaptainSweeper/blob/59a5f19808a71f649fef83e18ea1064ff6d74bf0/61e8f86d660ea37299d3f6067f6e397e.jpg)
 
 <div align="center">
 
