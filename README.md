@@ -7,7 +7,7 @@ info pages outdated
 
 $${\color{white}Strangers \space \color{white} In \space \color{white} The  \space \color{white}Night{}}$$
 
-![](https://github.com/CaptainSweeper/CaptainSweeper/blob/59a5f19808a71f649fef83e18ea1064ff6d74bf0/61e8f86d660ea37299d3f6067f6e397e.jpg)
+![](https://github.com/CaptainSweeper/dummyinbed/blob/74e4614d57ad4ca304bac73b22d3a99e9c4cc333/G8FFKR3WgAActXj.png)
 
 <div align="center">
 
@@ -43,4 +43,4 @@ ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu
   
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
 
-https://github.com/user-attachments/assets/02e6fd2a-8204-4f37-b9c2-14e9a2abdf3a
+![](https://github.com/CaptainSweeper/dummyinbed/blob/74e4614d57ad4ca304bac73b22d3a99e9c4cc333/G8n12sAWkAENqGJ.jfif)
