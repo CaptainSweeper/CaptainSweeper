@@ -3,6 +3,7 @@
 
 info pages outdated
 
+[𝘙𝘦𝘨𝘦𝘤𝘵 / 𝘢𝘸𝘦𝘴𝘰𝘮𝘦𝘥](https://github.com/lHasAFaceLULZ)
 ═════════════════════════════════════════════════════════════════════════════════════
 
 $${\color{white}Strangers \space \color{white} In \space \color{white} The  \space \color{white}Night{}}$$
@@ -28,7 +29,7 @@ ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu
 
 ✦⋆𓆩✧𓆪⋆✦
 
-![](https://komarev.com/ghpvc/?username=dummyinbed&label=Bombs&color=green&style=flat)
+![](https://komarev.com/ghpvc/?username=dummyinbed&label=Regections&color=blue&style=flat)
 
 [𝘚𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://dolliestprince.straw.page/) 𝜗𝜚 [𝘈𝘛𝘈𝘉𝘖𝘖𝘒](https://dummysblood.atabook.org/) 
 
