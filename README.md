@@ -3,12 +3,12 @@
 
 info pages outdated
 
-[𝘙𝘦𝘨𝘦𝘤𝘵 / 𝘢𝘸𝘦𝘴𝘰𝘮𝘦𝘥](https://github.com/lHasAFaceLULZ)
+[𝘙𝘦𝘨𝘦𝘤𝘵 / 𝘢𝘸𝘦𝘴𝘰𝘮𝘦𝘥](https://github.com/directoryuser1)
 ═════════════════════════════════════════════════════════════════════════════════════
 
 $${\color{white}Strangers \space \color{white} In \space \color{white} The  \space \color{white}Night{}}$$
 
-![](https://github.com/directoryuser1)
+![](https://github.com/CaptainSweeper/dummyinbed/blob/74e4614d57ad4ca304bac73b22d3a99e9c4cc333/G8FFKR3WgAActXj.png)
 
 <div align="center">
 
