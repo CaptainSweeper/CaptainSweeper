@@ -1,6 +1,6 @@
 
 <div align="center">
-
+replies 2 whispers I didnt respond to below , 
 [𝘙𝘦𝘨𝘦𝘤𝘵 / 𝘢𝘸𝘦𝘴𝘰𝘮𝘦𝘥](https://github.com/directoryuser1)
 ═════════════════════════════════════════════════════════════════════════════════════
 
@@ -41,5 +41,9 @@ ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu
 <div align="center">
   
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
+
+<img width="525" height="199" alt="image" src="https://github.com/user-attachments/assets/e7dcd852-6331-4a8b-afd8-2ea27e21e9a0" />
+sorry Iwas in bed byt the time I got these messages, I will respond rto them when I fgeel good enough to come up with a full response. Sorry :(
+
 
 ![](https://github.com/CaptainSweeper/dummyinbed/blob/74e4614d57ad4ca304bac73b22d3a99e9c4cc333/G8n12sAWkAENqGJ.jfif)
