@@ -1,6 +1,5 @@
 
 <div align="center">
-https://docs.google.com/document/d/1gS9HXaR1qoiRVyZXjzgQmgVrnAADLdb6JCVFEPIR2Sc/edit?usp=sharing
 
 
   
