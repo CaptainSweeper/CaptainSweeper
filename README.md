@@ -1,6 +1,6 @@
 
 <div align="center">
-reworking all of my socials
+https://docs.google.com/document/d/1gS9HXaR1qoiRVyZXjzgQmgVrnAADLdb6JCVFEPIR2Sc/edit?usp=sharing
   
 [𝘙𝘦𝘨𝘦𝘤𝘵 / 𝘢𝘸𝘦𝘴𝘰𝘮𝘦𝘥](https://github.com/directoryuser1)
 ═════════════════════════════════════════════════════════════════════════════════════
