@@ -1,7 +1,6 @@
 
 <div align="center">
-
-
+new responses below 2 whispers I didnt get to in time
   
 [𝘙𝘦𝘨𝘦𝘤𝘵 / 𝘢𝘸𝘦𝘴𝘰𝘮𝘦𝘥](https://github.com/directoryuser1)
 ═════════════════════════════════════════════════════════════════════════════════════
@@ -44,9 +43,22 @@ ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu
   
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
 
-[hi c*h enc ok? .in mc] whispers: hihiiiii sorry if I'm interrupting anything but I really love your ponies👀👀
+<img width="523" height="57" alt="image" src="https://github.com/user-attachments/assets/3055caa0-7b2b-4e12-9e82-dae1a8b77c5f" />
 
-HII THANK U SO MUCH ^.^ SRORY I COULDNT GET BACK TO U I WAS TAKING THE FATTEST NAP OF MY LIFE
+THANK YOUUU IM SO HAPPY U NOTICED USSS THATS SO SO SWEET IM SORRY I DIDNT GET TO SEE U BUT IM SURE UR MICHA WAS ADORABLE
+
+.
+
+<img width="510" height="72" alt="image" src="https://github.com/user-attachments/assets/ff9f9f47-3b4a-4871-87fb-abd291b8e670" />
+
+STOOOP YALL ARE ALL SO NICE THANK U SO MUCHH IM SORRY I COULDNT SAY HI TO U ;-(
+
+.
+
+<img width="522" height="59" alt="image" src="https://github.com/user-attachments/assets/860add1c-382d-42a6-8ba9-15340b4327bb" />
+
+I HAVE NO IDEA WHO THIS IS BUT I'D BE MORE THAN WELCOME TO!! CONTACT ME AT @adore_x ON DISCORD OR LEAVE NOTE ON ATA FOR MY OTHER SOCIALS, OR WHISPER ME :3c
+
 
 
 ![](https://github.com/CaptainSweeper/dummyinbed/blob/74e4614d57ad4ca304bac73b22d3a99e9c4cc333/G8n12sAWkAENqGJ.jfif)
