@@ -43,21 +43,9 @@ ORIGINALLY AS: @dummyinbed ,, or PrinceWemmbu
   
 ══════════════════════════⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔══════════════════════════
 
-<img width="523" height="57" alt="image" src="https://github.com/user-attachments/assets/3055caa0-7b2b-4e12-9e82-dae1a8b77c5f" />
+does that mean i can headcanon ur prns - random straw message
 
-THANK YOUUU IM SO HAPPY U NOTICED USSS THATS SO SO SWEET IM SORRY I DIDNT GET TO SEE U BUT IM SURE UR MICHA WAS ADORABLE
-
-.
-
-<img width="510" height="72" alt="image" src="https://github.com/user-attachments/assets/ff9f9f47-3b4a-4871-87fb-abd291b8e670" />
-
-STOOOP YALL ARE ALL SO NICE THANK U SO MUCHH IM SORRY I COULDNT SAY HI TO U ;-(
-
-.
-
-<img width="522" height="59" alt="image" src="https://github.com/user-attachments/assets/860add1c-382d-42a6-8ba9-15340b4327bb" />
-
-I HAVE NO IDEA WHO THIS IS BUT I'D BE MORE THAN WELCOME TO!! CONTACT ME AT @adore_x ON DISCORD OR LEAVE NOTE ON ATA FOR MY OTHER SOCIALS, OR WHISPER ME :3c
+yes of course call me what u'd like twin
 
 
 
