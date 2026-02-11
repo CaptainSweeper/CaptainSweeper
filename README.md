@@ -34,6 +34,8 @@ IC: pizzaxleliw
 
 <img width="359" height="321" alt="image" src="https://github.com/user-attachments/assets/5628c8c4-b5b7-4f84-9dcc-10bd5fe6833b" />
 
+drawing of me and [wumble](https://github.com/tirgery123) by [leli](https://github.com/pizzaxleliw)
+
 
 [𝘚𝘵𝘳𝘢𝘸𝘱𝘢𝘨𝘦](https://zegected.straw.page/) 𝜗𝜚 [𝘈𝘛𝘈𝘉𝘖𝘖𝘒](https://dummysblood.atabook.org/) 
 
