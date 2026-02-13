@@ -2,7 +2,7 @@
 <div align="center">
 special mentions
   
-[Wumble](https://github.com/tirgery123) ♡ [Leli](https://github.com/pizzaxleliw) ✦ [Wemmbu](https://github.com/IHASAFACE-LULZ) ♡ [Parrot](https://github.com/directoryuser1)
+[Wumble](https://github.com/tirgery123) ♡ [Leli](https://github.com/pizzaxleliw) ✦ [Wemmbu](https://github.com/IHASAFACE-LULZ) ♡ [Parrot](https://github.com/directoryuser1) ✦
 
 might add more umm but we have to be close friends sorrriii :3
   ═════════════════════════════════════════════════════════════════════════════════════
