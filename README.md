@@ -1,9 +1,11 @@
 
 <div align="center">
-resp to strawpage below
+special mentions
   
-[𝘙𝘦𝘨𝘦𝘤𝘵 / 𝘢𝘸𝘦𝘴𝘰𝘮𝘦𝘥](https://github.com/directoryuser1)
-═════════════════════════════════════════════════════════════════════════════════════
+[Wumble](https://github.com/tirgery123) ♡ [Leli](https://github.com/pizzaxleliw) ✦ [Wemmbu](https://github.com/IHASAFACE-LULZ) ♡ [Parrot](https://github.com/directoryuser1)
+
+might add more umm but we have to be close friends sorrriii :3
+  ═════════════════════════════════════════════════════════════════════════════════════
 
 $${\color{white}Strangers \space \color{white} In \space \color{white} The  \space \color{white}Night{}}$$
 
