@@ -4,19 +4,19 @@
 <img width="1300"  alt="928" src="https://github.com/user-attachments/assets/287ced27-e529-4014-8448-b722f95dfd9b" />
 <div align="center">
 <p align="center">
-<a href="https://hits.sh/github.com/staticAngels/"><img alt="Hits" src="https://hits.sh/github.com/staticAngels.svg?style=for-the-badge&label=(%20%20%E2%89%A7%E1%97%9C%E2%89%A6)&color=DEDADD&labelColor=9190BC"/></a>
+<a href="https://hits.sh/github.com/staticAngels/"><img alt="Hits" src="https://hits.sh/github.com/staticAngels.svg?style=for-the-badge&label=(%20%20%E2%89%A7%E1%97%9C%E2%89%A6)&color=FCFFFE&labelColor=F3D5CD"/></a>
 </p>
 
 <img align="left" 
 src="https://files.catbox.moe/hv57un.png" alt="decor img" width="50%"/> 
-  
-$\color{#9190BC}{\textsf{Eddi}}$ $\color{#DEDADD}{\textsf{ou}}$ $\color{#9190BC}{\textsf{Eddie}}$ $\color{#DEDADD}{\textsf{,}}$ $\color{#9190BC}{\textsf{pansexual}}$ $\color{#DEDADD}{\textsf{and}}$ $\color{#9190BC}{\textsf{bigender}}$ $\color{#DEDADD}{\textsf{!!}}$ $\color{#9190BC}{\textsf{in}}$ $\color{#DEDADD}{\textsf{a}}$ $\color{#9190BC}{\textsf{poly}}$ $\color{#DEDADD}{\textsf{relationship}}$ $\color{#9190BC}{\textsf{please}}$ $\color{#DEDADD}{\textsf{do}}$ $\color{#9190BC}{\textsf{not}}$ $\color{#DEDADD}{\textsf{flirt}}$ $\color{#9190BC}{\textsf{in}}$ $\color{#DEDADD}{\textsf{a}}$ $\color{#9190BC}{\textsf{serious}}$ $\color{#DEDADD}{\textsf{way}}$ $\color{#9190BC}{\textsf{!!}}$ $\color{#DEDADD}{\textsf{no}}$ $\color{#9190BC}{\textsf{dni}}$ $\color{#DEDADD}{\textsf{just}}$ $\color{#9190BC}{\textsf{do}}$ $\color{#DEDADD}{\textsf{not}}$ $\color{#9190BC}{\textsf{cover}}$ $\color{#DEDADD}{\textsf{my}}$ $\color{#9190BC}{\textsf{ponies}}$ $\color{#DEDADD}{\textsf{or}}$ $\color{#9190BC}{\textsf{anything}}$ $\color{#DEDADD}{\textsf{,}}$ $\color{#9190BC}{\textsf{my}}$ $\color{#DEDADD}{\textsf{interests}}$ $\color{#9190BC}{\textsf{are}}$ $\color{#DEDADD}{\textsf{mcyt}}$ $\color{#9190BC}{\textsf{,}}$ $\color{#DEDADD}{\textsf{pokemon}}$ $\color{#9190BC}{\textsf{and}}$ $\color{#DEDADD}{\textsf{allat}}$ $\color{#9190BC}{\textsf{Im}}$ $\color{#DEDADD}{\textsf{too}}$ $\color{#9190BC}{\textsf{lazy}}$ $\color{#DEDADD}{\textsf{sorry}}$ $\color{#9190BC}{\textsf{.}}$
+
+$\color{#F3D5CD}{\textsf{Seven}}$ $\color{#FCFFFE}{\textsf{/}}$ $\color{#F3D5CD}{\textsf{noa}}$ $\color{#FCFFFE}{\textsf{,}}$ $\color{#F3D5CD}{\textsf{he}}$ $\color{#FCFFFE}{\textsf{/}}$ $\color{#F3D5CD}{\textsf{they}}$ $\color{#FCFFFE}{\textsf{diagnosed}}$ $\color{#F3D5CD}{\textsf{bpd}}$ $\color{#FCFFFE}{\textsf{,}}$ $\color{#F3D5CD}{\textsf{did}}$ $\color{#FCFFFE}{\textsf{and}}$ $\color{#F3D5CD}{\textsf{auDHD}}$ $\color{#FCFFFE}{\textsf{.}}$ $\color{#F3D5CD}{\textsf{Proship}}$ $\color{#FCFFFE}{\textsf{IWC}}$ $\color{#F3D5CD}{\textsf{/}}$ $\color{#FCFFFE}{\textsf{DNI}}$ $\color{#F3D5CD}{\textsf{,}}$ $\color{#FCFFFE}{\textsf{Devi}}$ $\color{#F3D5CD}{\textsf{mccallion}}$ $\color{#FCFFFE}{\textsf{number}}$ $\color{#F3D5CD}{\textsf{1}}$ $\color{#FCFFFE}{\textsf{fan}}$ $\color{#F3D5CD}{\textsf{,}}$ $\color{#FCFFFE}{\textsf{my}}$ $\color{#F3D5CD}{\textsf{interests}}$ $\color{#FCFFFE}{\textsf{are}}$ $\color{#F3D5CD}{\textsf{homestuck}}$ $\color{#FCFFFE}{\textsf{,}}$ $\color{#F3D5CD}{\textsf{mcyt}}$ $\color{#FCFFFE}{\textsf{and}}$ $\color{#F3D5CD}{\textsf{stuff}}$ $\color{#FCFFFE}{\textsf{similar}}$ $\color{#F3D5CD}{\textsf{.}}$
 
 <table>
   <tr>
     <td>
       <img src="https://files.catbox.moe/bc17v8.png" width="22">
- ִֶָ♡་༘ $\color{#9190BC}{\textsf{fiction}}$ $\color{#DEDADD}{\textsf{kin}}$ $\color{#9190BC}{\textsf{with}}$ $\color{#DEDADD}{\textsf{diagnosed}}$ $\color{#9190BC}{\textsf{ADHD}}$ 
+$\color{#F3D5CD}{\textsf{Why}}$ $\color{#FCFFFE}{\textsf{can't}}$ $\color{#F3D5CD}{\textsf{you}}$ $\color{#FCFFFE}{\textsf{get}}$ $\color{#F3D5CD}{\textsf{it}}$ $\color{#FCFFFE}{\textsf{up}}$ $\color{#F3D5CD}{\textsf{ ִֶָ♡་༘ }}$
     </td>
   </tr>
 </table>
